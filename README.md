@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Karen
+- 📫 karen.hausman@gdit.com / hausman.karen@epa.gov
